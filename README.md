@@ -1,0 +1,2 @@
+# 2314ad31-bd91-4858-8c75-5701164c494e-hero-2
+Hero section variant 2 for 2314ad31-bd91-4858-8c75-5701164c494e
